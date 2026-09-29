@@ -1,1 +1,1 @@
-# Yua Iriki！！
+# Yua Iriki
